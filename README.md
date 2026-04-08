@@ -31,4 +31,5 @@ Sou desenvolvedor e designer, criador do **Landell.Studio**, onde tecnologia e a
 
 ---
 ## 🌐 Conecte-se
-- [LinkedIn](https://linkedin.com/in/seuusuario)  
+- [LinkedIn](https://linkedin.com/in/seuusuario)
+- [WhatsApp](https://wa.link/ki3w1v)
